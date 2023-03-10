@@ -1,3 +1,3 @@
-https://Aleh91.github.io/rsschool-cv/cv <br>
-https://Aleh91.github.io/rsschool-cv/cv
-1
+https://Aleh91.github.io/rsschool-cv/index.html <br>
+https://Aleh91.github.io/rsschool-cv/index.html
+
